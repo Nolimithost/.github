@@ -1,2 +1,2 @@
-## Nolimithost
+## NolimitHost
 https://nolimithost.cc/
